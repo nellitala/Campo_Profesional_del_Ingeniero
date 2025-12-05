@@ -61,3 +61,5 @@ No siento que cambiaría mucho la verdad, estuve muy satisfecha con las clases, 
 Pues en general me la pasé muy bien. Siento que hay mucho apoyo entre mis compañeros; se nota el compañerismo que se tiene en el salón y eso hace que el ambiente sea muy agradable. También es súper fácil preguntar al profe y resolver dudas, siempre hay disposición para explicar y eso se agradece muchísimo. Los temas me quedan muy claros gracias a las prácticas que se generan, porque no solo vemos la teoría, sino que realmente la aplicamos.
 
 Además, me gustó que todos participamos y que cada actividad nos ayudó a reforzar lo aprendido. Creo que este curso no solo me dejó conocimientos, sino también experiencias y dinámicas que me motivaron a seguir aprendiendo. En resumen, fue una clase ligera, útil y con un ambiente que facilitó un buen aprendizaje.
+
+# Examen final terminado, Feliz Navidad!
